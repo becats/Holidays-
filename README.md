@@ -2,6 +2,18 @@
 
 So I've put together some options for flights + villas.   
 
+### What about Florence? 
+
+It's not really a beach holiday but the area is amazing. We could visit Pisa, Florence and the rest of Tuscany from here. 
+
+Ryanair fly directly to Pisa: 
+
+![Pisa Flight](Screen Shot 2016-05-18 at 12.23.22.png)
+
+And there are some awesome Villa's available around the area. 
+- https://www.airbnb.com/rooms/11200668?guests=10&s=f1-QIYd0&check_in=2016-08-03&check_out=2016-08-10    
+- https://www.airbnb.com/rooms/7123222?guests=10&s=liEdba_D&check_in=2016-08-03&check_out=2016-08-10    
+
 ### Barcelona 
 
 Ryanair fly direct from Glasgow Prestwick.
@@ -27,17 +39,7 @@ Flights are around the same price as Barcelona but Villas seem to be much nicer.
 - https://www.homeaway.co.uk/p1703968
 
 
-### What about Florence? 
 
-It's not really a beach holiday but the area is amazing. We could visit Pisa, Florence and the rest of Tuscany from here. 
-
-Ryanair fly directly to Pisa: 
-
-![Pisa Flight](Screen Shot 2016-05-18 at 12.23.22.png)
-
-And there are some awesome Villa's available around the area. 
-- https://www.airbnb.com/rooms/11200668?guests=10&s=f1-QIYd0&check_in=2016-08-03&check_out=2016-08-10    
-- https://www.airbnb.com/rooms/7123222?guests=10&s=liEdba_D&check_in=2016-08-03&check_out=2016-08-10    
 
 
 
