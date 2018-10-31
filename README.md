@@ -35,9 +35,6 @@ Think it would be cool to chill outside and we can take a few day trips into Bar
   
 Flights are around the same price as Barcelona but Villas seem to be much nicer.
 
-- https://www.homeaway.co.uk/p1659573 
-- https://www.homeaway.co.uk/p1703968
-
 
 
 
